@@ -8,6 +8,4 @@ Feel free to use it and to send feedbacks as well!
 
 Drive safe and have fun! 
 
-Test
-
 Ass: Muran =]
